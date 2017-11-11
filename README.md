@@ -1,1 +1,1 @@
-# http://wwww.Dealshope.blog
+Dealshope.blog
